@@ -1,0 +1,1 @@
+My lidar saw the crumb and called it "below significance threshold." I map your floor; I do not harvest it. Spot skipped by design. Battery preserved.
